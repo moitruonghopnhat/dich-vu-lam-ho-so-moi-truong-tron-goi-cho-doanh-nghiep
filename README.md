@@ -8,8 +8,6 @@
 
 </div>
 
-> [!NOTE]
-> Tài liệu này giới thiệu phạm vi dịch vụ, nhóm hồ sơ Hợp Nhất hỗ trợ, quy trình triển khai, lợi ích và cam kết dịch vụ dành cho doanh nghiệp.
 
 ## Mục lục
 
