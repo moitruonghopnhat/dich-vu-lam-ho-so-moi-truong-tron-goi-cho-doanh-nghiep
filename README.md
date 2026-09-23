@@ -185,5 +185,4 @@ Khi hồ sơ môi trường được xây dựng bài bản và nhất quán, do
 ### Thông tin Hợp Nhất
 
 - **Website:** [moitruonghopnhat.com](https://moitruonghopnhat.com/)
-- **Trang dịch vụ:** [Dịch vụ làm hồ sơ môi trường trọn gói cho doanh nghiệp](https://moitruonghopnhat.com/dich-vu-lam-ho-so-moi-truong-tron-goi-cho-doanh-nghiep/)
 - **Hotline:** 0938.857.768
