@@ -178,7 +178,7 @@ Khi hồ sơ môi trường được xây dựng bài bản và nhất quán, do
 
 ## 6. Liên hệ tư vấn
 
-> Quý Doanh nghiệp có nhu cầu sử dụng [dịch vụ làm hồ sơ môi trường trọn gói](https://moitruonghopnhat.com/dich-vu-lam-ho-so-moi-truong-tron-goi-cho-doanh-nghiep/), vui lòng liên hệ **Hotline: 0938.857.768** hoặc gửi thông tin qua [**Form Tư Vấn**](https://moitruonghopnhat.com/dich-vu-lam-ho-so-moi-truong-tron-goi-cho-doanh-nghiep/) để Hợp Nhất tiếp nhận và rà soát nhu cầu thực tế. Đội ngũ chuyên môn sẽ đánh giá tình trạng hồ sơ hiện có, xác định thủ tục cần thực hiện và đề xuất lộ trình triển khai phù hợp với từng dự án.
+> Quý Doanh nghiệp có nhu cầu sử dụng [dịch vụ làm hồ sơ môi trường trọn gói](https://moitruonghopnhat.com/dich-vu-lam-ho-so-moi-truong-tron-goi-cho-doanh-nghiep/), vui lòng liên hệ **Hotline: 0938.857.768** để Hợp Nhất tiếp nhận và rà soát nhu cầu thực tế. Đội ngũ chuyên môn sẽ đánh giá tình trạng hồ sơ hiện có, xác định thủ tục cần thực hiện và đề xuất lộ trình triển khai phù hợp với từng dự án.
 
 ---
 
